@@ -1,1 +1,1 @@
-# Cosme-tics
+# Cosm-ticos
